@@ -1,4 +1,4 @@
-# 
+# Professional deribit trading bot workflow for Mac OS | Premium deribit trading bot workflow for PC Windows. Featuring momentum analysis and dex liquidity pools — optimized for maximum performance.
 
 
 
